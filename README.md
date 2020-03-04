@@ -30,7 +30,7 @@ sonst verhungert mann oder verdurstet aber es gibt admin komands amf severn
 damit kann mann dinos spawnen oder leute töten oder sich sogar teleportieren dann gibt es auch noch eine admin konsole  mit der kannst du dich selbst leveln oder deinen dinos ein höeres level verpassen dadurch werden sie stärker oder
 sogar schneller oder sie haben mehr leben odre können mehr gewicht tragen das ist vorteil haftz weil mann dan angeben oder sich beweissen kann auch noch mit der konslole kann mach sich unendlich leben geben oder alle dinos heilen 
 wan kann damit auch fliegen oder sich materialien cheaten eigendlich ist das betrug
-aber jeder würde es machen wenn er könnte        Cassian ist dumm</p>
+aber jeder würde es machen wenn er könnte  Cassian ist dumm </p>
 <img src=" ARK3.jfif" width="300"  />
 
 <h3>es gibt einen freien sever name: ARKSALENSTEIN  password: CV </h3>
