@@ -35,7 +35,7 @@ aber jeder würde es machen wenn er könnte        Cassian ist dumm</p>
 
 <h3>es gibt einen freien sever name: ARKSALENSTEIN  password: CV </h3>
 
- <img src=" ARK4.jfif" width="300"  />
+ <img src=" ARK4.jfif" width="301"  />
 
 
 
