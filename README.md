@@ -15,7 +15,7 @@
 <body>
 <h1> ARK </h1>
 
-<p> anfänger schritte ARK </p>
+
 
 <h2> Was ist ark  </h2>
 
